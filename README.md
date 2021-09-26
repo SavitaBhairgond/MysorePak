@@ -1,1 +1,2 @@
 # MysorePak
+Mysore Pak is a traditional indian sweet recipe and the mouthwatering recipe made with besan flour, ghee and sugar. it is a popular dessert recipe from the state of karnataka and hails from a royal family of mysore. it is made as hard and soft variants and this recipe deals with soft and smooth mysore pak recipe.
